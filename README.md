@@ -1,0 +1,5 @@
+- Call me Eldeirun
+- I like playing guitar, games and learning Python
+- I'm pretty new to Python and It's my first language!
+- I’m looking to collaborate on learning together and showing each other newly learnt stuff
+- Eldeirun#3132
